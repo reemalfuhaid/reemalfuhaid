@@ -1,4 +1,4 @@
-## Hi, I'm Reem Alfuhaid
+## Hello, I am Reem Alfuhaid
 
 Computer Science Student at the University of Hail
 
